@@ -40,7 +40,7 @@ Sou formado em Engenharia da Computação pela FIAP (2019–2024) e atuo com foc
 ## 📫 Contato
 
 - [LinkedIn](https://www.linkedin.com/in/luiz-franco124)  
-- Email: luiz_gustavo2000@outlook.com
+- Email: luizg.franco@icloud.com
 
 ---
 
